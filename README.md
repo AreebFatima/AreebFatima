@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AreebFatima
 - 👀 I’m interested in making illustration ,digital potrait , pattern design.
-- 🌱 I’m currently learning doctor of pharmacy
-- 💞️ I’m looking to collaborate on graphic design
+- 🌱 I’m currently schooling in BS ENGLISH 
+- 💞️ I’m looking to collaborate on graphic design , web designing.
 - 📫 How to reach me contact me  
 
 <!---
